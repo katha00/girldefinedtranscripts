@@ -19,6 +19,30 @@ Transcripts for The Girl Defined Show Podcast
 
 [Episode 76](https://github.com/katha00/girldefinedtranscripts/blob/60a05653c28d7ee90eecb5b6a76f4ac5f3a6531a/Ep.76%20Why%20Premarital%20Counseling%20Should%20be.docx)
 
-[Episode 77]
+[Episode 77](https://github.com/katha00/girldefinedtranscripts/blob/c8d9ca10202ecb158f4017e08696076ba6aa2d58/EP%2077.txt)
 
-[Episode 78]
+[Episode 78](https://github.com/katha00/girldefinedtranscripts/blob/c8d9ca10202ecb158f4017e08696076ba6aa2d58/EP%2078.txt)
+
+[Episode 79](https://github.com/katha00/girldefinedtranscripts/blob/c8d9ca10202ecb158f4017e08696076ba6aa2d58/EP%2079.txt)
+
+[Episode 80](https://github.com/katha00/girldefinedtranscripts/blob/c8d9ca10202ecb158f4017e08696076ba6aa2d58/EP%2080.txt)
+
+[Episode 81](https://github.com/katha00/girldefinedtranscripts/blob/c8d9ca10202ecb158f4017e08696076ba6aa2d58/EP%2081.txt)
+
+[Episode 82](https://github.com/katha00/girldefinedtranscripts/blob/c8d9ca10202ecb158f4017e08696076ba6aa2d58/EP%2082.txt)
+
+[Episode 83](https://github.com/katha00/girldefinedtranscripts/blob/c8d9ca10202ecb158f4017e08696076ba6aa2d58/EP%2083.txt)
+
+[Episode 84](https://github.com/katha00/girldefinedtranscripts/blob/c8d9ca10202ecb158f4017e08696076ba6aa2d58/EP%2084.txt)
+
+[Episode 85](https://github.com/katha00/girldefinedtranscripts/blob/c8d9ca10202ecb158f4017e08696076ba6aa2d58/EP%2085.txt)
+
+[Episode 86](https://github.com/katha00/girldefinedtranscripts/blob/c8d9ca10202ecb158f4017e08696076ba6aa2d58/EP%2086.txt)
+
+[Episode 87](https://github.com/katha00/girldefinedtranscripts/blob/c8d9ca10202ecb158f4017e08696076ba6aa2d58/EP%2087.txt)
+
+[Episode 88](https://github.com/katha00/girldefinedtranscripts/blob/c8d9ca10202ecb158f4017e08696076ba6aa2d58/EP%2088.txt)
+
+[Episode 89](https://github.com/katha00/girldefinedtranscripts/blob/c8d9ca10202ecb158f4017e08696076ba6aa2d58/EP%2089.txt)
+
+[Episode 90](https://github.com/katha00/girldefinedtranscripts/blob/c8d9ca10202ecb158f4017e08696076ba6aa2d58/EP%2090.txt)
