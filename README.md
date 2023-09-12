@@ -46,3 +46,63 @@ Transcripts for The Girl Defined Show Podcast
 [Episode 89](https://github.com/katha00/girldefinedtranscripts/blob/c8d9ca10202ecb158f4017e08696076ba6aa2d58/EP%2089.txt)
 
 [Episode 90](https://github.com/katha00/girldefinedtranscripts/blob/c8d9ca10202ecb158f4017e08696076ba6aa2d58/EP%2090.txt)
+
+[Episode 91](https://github.com/katha00/girldefinedtranscripts/blob/3c3e96bc5ea2df3570b3a0a2d90dba9b7844185c/EP%2091.txt)
+
+[Episode 92](https://github.com/katha00/girldefinedtranscripts/blob/3c3e96bc5ea2df3570b3a0a2d90dba9b7844185c/EP%2092.txt)
+
+[Episode 93](https://github.com/katha00/girldefinedtranscripts/blob/3c3e96bc5ea2df3570b3a0a2d90dba9b7844185c/EP%2093.txt)
+
+[Episode 94](https://github.com/katha00/girldefinedtranscripts/blob/3c3e96bc5ea2df3570b3a0a2d90dba9b7844185c/EP%2094.txt)
+
+[Episode 95](https://github.com/katha00/girldefinedtranscripts/blob/3c3e96bc5ea2df3570b3a0a2d90dba9b7844185c/EP%2095.txt)
+
+[Episode 96](https://github.com/katha00/girldefinedtranscripts/blob/3c3e96bc5ea2df3570b3a0a2d90dba9b7844185c/EP%2096.txt)
+
+[Episode 97](https://github.com/katha00/girldefinedtranscripts/blob/3c3e96bc5ea2df3570b3a0a2d90dba9b7844185c/EP%2097.txt)
+
+[Episode 98](https://github.com/katha00/girldefinedtranscripts/blob/3c3e96bc5ea2df3570b3a0a2d90dba9b7844185c/EP%2098.txt)
+
+[Episode 99](https://github.com/katha00/girldefinedtranscripts/blob/3c3e96bc5ea2df3570b3a0a2d90dba9b7844185c/EP%2099.txt)
+
+[Episode 100](https://github.com/katha00/girldefinedtranscripts/blob/3c3e96bc5ea2df3570b3a0a2d90dba9b7844185c/EP_100.txt)
+
+[Episode 101](https://github.com/katha00/girldefinedtranscripts/blob/3c3e96bc5ea2df3570b3a0a2d90dba9b7844185c/EP_101.txt)
+
+[Episode 102](https://github.com/katha00/girldefinedtranscripts/blob/3c3e96bc5ea2df3570b3a0a2d90dba9b7844185c/EP_102.txt)
+
+[Episode 103](https://github.com/katha00/girldefinedtranscripts/blob/3c3e96bc5ea2df3570b3a0a2d90dba9b7844185c/EP_103.txt)
+
+[Episode 104](https://github.com/katha00/girldefinedtranscripts/blob/3c3e96bc5ea2df3570b3a0a2d90dba9b7844185c/EP_104.txt)
+
+[Episode 105]
+
+[Episode 106]
+
+[Episode 107]
+
+[Episode 108]
+
+[Episode 109]
+
+[Episode 110]
+
+[Episode 111]
+
+[Episode 112]
+
+[Episode 113]
+
+[Episode 114]
+
+[Episode 115]
+
+[Episode 116]
+
+[Episode 117]
+
+[Episode 118]
+
+[Episode 119]
+
+[Episode 120]
