@@ -75,34 +75,81 @@ Transcripts for The Girl Defined Show Podcast
 
 [Episode 104](https://github.com/katha00/girldefinedtranscripts/blob/3c3e96bc5ea2df3570b3a0a2d90dba9b7844185c/EP_104.txt)
 
-[Episode 105]
+[Episode 105](https://github.com/katha00/girldefinedtranscripts/blob/f3b441b920caa889c9c0fe932c05e1a357b490be/EP%20105.txt)
 
-[Episode 106]
+[Episode 106](https://github.com/katha00/girldefinedtranscripts/blob/f3b441b920caa889c9c0fe932c05e1a357b490be/EP%20106.txt)
 
-[Episode 107]
+[Episode 107](https://github.com/katha00/girldefinedtranscripts/blob/f3b441b920caa889c9c0fe932c05e1a357b490be/EP%20107.txt)
 
-[Episode 108]
+[Episode 108](https://github.com/katha00/girldefinedtranscripts/blob/f3b441b920caa889c9c0fe932c05e1a357b490be/EP%20108.txt)
 
-[Episode 109]
+[Episode 109](https://github.com/katha00/girldefinedtranscripts/blob/f3b441b920caa889c9c0fe932c05e1a357b490be/EP%20109.txt)
 
-[Episode 110]
+[Episode 110](https://github.com/katha00/girldefinedtranscripts/blob/f3b441b920caa889c9c0fe932c05e1a357b490be/EP%20110.txt)
 
-[Episode 111]
+[Episode 111](https://github.com/katha00/girldefinedtranscripts/blob/f3b441b920caa889c9c0fe932c05e1a357b490be/EP%20111.txt)
 
-[Episode 112]
+[Episode 112](https://github.com/katha00/girldefinedtranscripts/blob/f3b441b920caa889c9c0fe932c05e1a357b490be/EP%20112.txt)
 
-[Episode 113]
+[Episode 113](https://github.com/katha00/girldefinedtranscripts/blob/f3b441b920caa889c9c0fe932c05e1a357b490be/EP%20113.txt)
 
-[Episode 114]
+[Episode 114](https://github.com/katha00/girldefinedtranscripts/blob/f3b441b920caa889c9c0fe932c05e1a357b490be/EP%20114.txt)
 
-[Episode 115]
+[Episode 115](https://github.com/katha00/girldefinedtranscripts/blob/f3b441b920caa889c9c0fe932c05e1a357b490be/EP%20115.txt)
 
-[Episode 116]
+[Episode 116](https://github.com/katha00/girldefinedtranscripts/blob/f3b441b920caa889c9c0fe932c05e1a357b490be/EP%20116.txt)
 
-[Episode 117]
+[Episode 117](https://github.com/katha00/girldefinedtranscripts/blob/f3b441b920caa889c9c0fe932c05e1a357b490be/EP%20117.txt)
 
-[Episode 118]
+[Episode 118](https://github.com/katha00/girldefinedtranscripts/blob/f3b441b920caa889c9c0fe932c05e1a357b490be/EP%20118.txt)
 
-[Episode 119]
+[Episode 119](https://github.com/katha00/girldefinedtranscripts/blob/f3b441b920caa889c9c0fe932c05e1a357b490be/EP%20119.txt)
 
-[Episode 120]
+[Episode 120](https://github.com/katha00/girldefinedtranscripts/blob/f3b441b920caa889c9c0fe932c05e1a357b490be/EP%20120.txt)
+
+[Episode 121]
+
+[Episode 122]
+
+[Episode 123]
+
+[Episode 124]
+
+[Episode 125]
+
+[Episode 126]
+
+[Episode 127]
+
+[Episode 128]
+
+[Episode 129]
+
+[Episode 130]
+
+[Episode 131]
+
+[Episode 132]
+
+[Episode 133]
+
+[Episode 134]
+
+[Episode 135]
+
+[Episode 136]
+
+[Episode 137]
+
+[Episode 138]
+
+[Episode 139]
+
+[Episode 140]
+
+[Episode 141]
+
+[Episode 142]
+
+[Episode 143]
+
